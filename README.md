@@ -6,7 +6,7 @@ This Game is just for fun, so enjoy.
 
 Clash Royale: https://clashroyale.com
 
-I dont anylonger make updates to this game, so I decided to make it public.
+I dont any longer make updates to this game, so I decided to make it public.
 maybe I will add someday something, but its more ney because
 I would do the most things differen at this time.
 
